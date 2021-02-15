@@ -28,4 +28,4 @@ https://vk.com/flaiers
 
 https://t.me/flaiers
 
-![Photo](https://i.ibb.co/kSFbhZs/IHDqc-V-2-GI-u-Ku-WXpo-Qc-D5uerr-A5-Gi-Wm-Zw-Fji-JVSx-Xi-RTl-E4d-E7f-AGHqwd-P0m-Wa4-Bi-IYHSr1-bt-l-W.jpg)
+![Photo](https://i.yapx.ru/LFiAR.jpg)
