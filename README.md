@@ -27,5 +27,3 @@ sudo systemctl restart gunicorn
 https://vk.com/flaiers
 
 https://t.me/flaiers
-
-![Photo](https://i.yapx.ru/LFiAR.jpg)
